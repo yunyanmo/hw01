@@ -13,6 +13,6 @@ I enjoy reading, drawing, and watching movies. Here are some movies that I plan 
 * Loving Vincent
 * Memoirs of a Geisha
 
-! [This is me in Kyoto, Japan, I look forward to the day when we can travel around the world freely again.](/Downloads/Me.jpeg)
+! [This is me in Kyoto, Japan, I look forward to the day when we can travel around the world freely again.](/Downloads/Me.jpeg.png)
 
 I am *excited* about this course and when I am going to learn for the next 5 weeks! I will try my **best** to be a good student!
